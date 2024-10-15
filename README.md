@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kelly-andersun
 - 👀 I’m interested in Marketing
 - 🌱 I’m currently learning Communication
-- 💞️ I’m looking to collaborate on Project
+- 💞️ I’m looking to collaborate on [Project](https://www.thecoworkingspaces.com/)
 - 📫 Reach me @ gravatar.com/kellyanderson9
 - 😄 Pronouns: Keli
 - ⚡ Fun fact: Friendly
